@@ -1,4 +1,4 @@
-# 
+# Get the ultimate ftx trading bot with ftx trading bot advanced Strategy | low-frequency & latency-optimization. Featuring low-frequency and latency-optimization, it's the best
 
 
 
